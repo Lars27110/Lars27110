@@ -5,14 +5,6 @@
 I do some coding on my own when I have nothing to do. (Even though I don't know how to write a single line of code)
 I mainly train myself to learn the C++ language and make mods for Beat Saber.
 
+I'm working on two big mod projects, and believe me, you won't be disappointed.
+
 I probably won't be very active because of classes, but I'm still trying to do fun things for you as well as for myself.
-
-## You can find me on...
-### Tiktok: @Leaster.off
-### X: @Axelmec27
-### Discord: Lars27110
-
-## And if you're interested...
-### Fortnite: Larsfagrain
-### Roblox: Le_axel27
-### Xbox: Lars27110
